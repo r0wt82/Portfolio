@@ -7,3 +7,6 @@
 ![nav](https://user-images.githubusercontent.com/111672995/191835024-64156075-a589-46ef-abc3-e009129e81d2.png)
 
 
+
+
+![tech_trivia](https://user-images.githubusercontent.com/111672995/192083998-04e25e68-9ab3-4e6c-b8df-76484b7c66b9.jpg)
