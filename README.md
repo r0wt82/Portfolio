@@ -10,3 +10,6 @@
 
 
 ![tech_trivia](https://user-images.githubusercontent.com/111672995/192083998-04e25e68-9ab3-4e6c-b8df-76484b7c66b9.jpg)
+[ADITYA RAWAT it quizz Certificate.pdf](https://github.com/r0wt82/Portfolio/files/9638102/ADITYA.RAWAT.it.quizz.Certificate.pdf)
+![aditya_poster_making](https://user-images.githubusercontent.com/111672995/192084045-43762e20-d026-4639-92be-509b97c3873e.png)
+![IMG-20220719-WA0010](https://user-images.githubusercontent.com/111672995/192084048-f2ee4693-f580-47d4-8238-4b0403b4b7e1.jpg)
